@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fahroediin
-- 👀 I’m interested in HTML, CSS and multiple frameworks
+- 👀 I’m interested in HTML, CSS bootstrap, graphic design and video editing
 - 🌱 I’m currently learning CodeIgniter and Bootstrap 5
 - 💞️ I’m looking to collaborate on Social Implementation Project
 - 📫 You can reach me at fahroediinj@gmail.com
