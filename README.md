@@ -1,4 +1,4 @@
-# Fahroediinj's GitHub Profile
+Hi! Comrades
 
 ## Introduction
 Hello, I'm Fahrudin and this is my GitHub profile! 
