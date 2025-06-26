@@ -18,23 +18,11 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 - 💬 [whatsapp-cashflow-bot](https://github.com/fahroediin/whatsapp-cashflow-bot) — Automate daily cash logging via WhatsApp
 - 📊 [whatsapp-cashflow-web-log-viewer](https://github.com/fahroediin/cashflow-web) — Simple Supabase-based log viewer for WhatsApp bot
 
-## 🧠 Currently Learning
-
-Diving into various technologies to better understand how **AI and backend systems** work — not just technically, but from a **business point of view** too.  
-Right now, I'm shifting toward a **Product Owner** role, so I'm focused on bridging the gap between business needs and tech execution.
-
-- Deepening my knowledge of AI architecture & real-world use cases  
-- Exploring product strategies using data and automation  
-- Turning business goals into clear technical requirements  
-- Learning how to manage backlogs and collaborate better with dev teams
-
-
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
 > "Discontent is the first necessity of progress." — **Thomas Edison**
 <!-- QUOTE-END -->
-
 
 ## 🔗 Connect With Me
 
