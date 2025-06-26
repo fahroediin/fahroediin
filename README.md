@@ -31,7 +31,9 @@ Right now, I'm shifting toward a **Product Owner** role, so I'm focused on bridg
 
 ## ✨ Daily Motivation
 
-![Quote]([https://github-readme-quotes.vercel.app/api?theme=tokyonight&animation=fadeIn&quote=day](https://zenquotes.io/api/today))
+<!-- QUOTE-START -->
+> "Placeholder quote" — **Author**
+<!-- QUOTE-END -->
 
 
 ## 🔗 Connect With Me
