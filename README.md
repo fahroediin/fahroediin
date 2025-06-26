@@ -29,7 +29,7 @@ Right now, I'm shifting toward a **Product Owner** role, so I'm focused on bridg
 - Learning how to manage backlogs and collaborate better with dev teams
 
 
-## ✨ Daily Inspiration
+## ✨ Daily Motivation
 
 ![Quote](https://github-readme-quotes.vercel.app/api?theme=tokyonight&animation=fadeIn&quote=day)
 
