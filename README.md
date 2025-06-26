@@ -32,7 +32,7 @@ Right now, I'm shifting toward a **Product Owner** role, so I'm focused on bridg
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Placeholder quote" — **Author**
+> "Discontent is the first necessity of progress." — **Thomas Edison**
 <!-- QUOTE-END -->
 
 
