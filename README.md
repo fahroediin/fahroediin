@@ -13,8 +13,6 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ![PostgreSQL](https://img.shields.io/badge/PostgreSQL-4169E1?logo=postgresql&logoColor=white)
 ![Firebase](https://img.shields.io/badge/Firebase-FFCA28?logo=firebase&logoColor=black)
 
-
-
 ## 📌 Featured Projects
 
 - 💬 [whatsapp-cashflow-bot](https://github.com/fahroediin/whatsapp-cashflow-bot) — Automate daily cash logging via WhatsApp
@@ -30,12 +28,11 @@ Right now, I'm shifting toward a **Product Owner** role, so I'm focused on bridg
 - Turning business goals into clear technical requirements  
 - Learning how to manage backlogs and collaborate better with dev teams
 
-## 📈 GitHub Stats
 
-<p align="center">
-  <img src="https://github-readme-stats.vercel.app/api?username=fahroediin&show_icons=true&theme=tokyonight" alt="GitHub Stats" />
-  <img src="https://github-readme-streak-stats.herokuapp.com?user=fahroediin&theme=tokyonight" alt="GitHub Streak" />
-</p>
+## ✨ Daily Inspiration
+
+![Quote](https://github-readme-quotes.vercel.app/api?theme=tokyonight&animation=fadeIn&quote=day)
+
 
 ## 🔗 Connect With Me
 
