@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Discontent is the first necessity of progress." — **Thomas Edison**
+> "Sadness is but a wall between two gardens." — **Kahlil Gibran**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
