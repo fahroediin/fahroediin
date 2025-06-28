@@ -2,13 +2,13 @@ name: Update Daily Quote
 
 on:
   schedule:
-    - cron: '0 0 * * *' # Setiap hari pukul 00:00 UTC
-  workflow_dispatch:     # Bisa dijalankan manual juga
-
+    - cron: '0 17 * * *'
+  workflow_dispatch:
 jobs:
   update-readme:
     runs-on: ubuntu-latest
-
+    permissions:
+      contents: write
     steps:
       - name: Checkout Repo
         uses: actions/checkout@v3
