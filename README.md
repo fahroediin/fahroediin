@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Sadness is but a wall between two gardens." — **Kahlil Gibran**
+> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit." — **Conrad Hilton**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
