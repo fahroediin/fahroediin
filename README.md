@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit." — **Conrad Hilton**
+> "No man is happy unless he believes he is." — **Publilius Syrus**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
