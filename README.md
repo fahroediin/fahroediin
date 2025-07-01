@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "No man is happy unless he believes he is." — **Publilius Syrus**
+> "Some of us learn from other people's mistakes and the rest of us have to be other people.  " — **Zig Ziglar**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
