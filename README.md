@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Some of us learn from other people's mistakes and the rest of us have to be other people.  " — **Zig Ziglar**
+> "Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results." — **Peter Drucker**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
