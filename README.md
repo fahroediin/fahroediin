@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Imam Fahrudin!
+# Hello, repo traveler! 😼
 
 I'm a passionate **Backend Developer** currently working with **OutSystems**, and exploring AI, OCR, and full-stack web development (React, Node.js, Supabase). I love building useful tools and automation bots, especially on WhatsApp! 📱
 
