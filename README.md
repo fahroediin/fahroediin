@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results." — **Peter Drucker**
+> "Always focus on the front windshield and not the rear view mirror." — **Colin Powell**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
