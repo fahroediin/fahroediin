@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Always focus on the front windshield and not the rear view mirror." — **Colin Powell**
+> "Not all those who wander are lost." — **J.R.R. Tolkien**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
