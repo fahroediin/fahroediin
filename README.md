@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Not all those who wander are lost." — **J.R.R. Tolkien**
+> "When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic. " — **Charles Swindoll**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
