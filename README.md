@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic. " — **Charles Swindoll**
+> "The longer we dwell on our misfortunes, the greater is their power to harm us." — **Voltaire**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
