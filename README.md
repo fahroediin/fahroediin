@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Troubles are often the tools by which God fashions us for better things." — **Henry Ward Beecher**
+> "The whole is greater than the sum of its parts." — **Aristotle**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
