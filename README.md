@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The whole is greater than the sum of its parts." — **Aristotle**
+> "When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.  " — **Wayne Dyer**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
