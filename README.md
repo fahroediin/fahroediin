@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The destiny of man is in his own soul. " — **Herodotus**
+> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit." — **Les Brown**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
