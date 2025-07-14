@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Most people fail in life not because they aim too high and miss, but because they aim too low and hit." — **Les Brown**
+> "Sometimes out of your biggest misery, comes your greatest gain." — **Steve Harvey**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
