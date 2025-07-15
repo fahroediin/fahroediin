@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Sometimes out of your biggest misery, comes your greatest gain." — **Steve Harvey**
+> "You will succeed because most people are lazy." — **Shahir Zag**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
