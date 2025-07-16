@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "You will succeed because most people are lazy." — **Shahir Zag**
+> "Well done is better than well said." — **Benjamin Franklin**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
