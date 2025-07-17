@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Well done is better than well said." — **Benjamin Franklin**
+> "Ponder and deliberate before you make a move." — **Sun Tzu**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
