@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Ponder and deliberate before you make a move." — **Sun Tzu**
+> "Better a diamond with a flaw than a pebble without one." — **Chinese Proverb**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
