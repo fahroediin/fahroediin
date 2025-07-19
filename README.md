@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Better a diamond with a flaw than a pebble without one." — **Chinese Proverb**
+> "Words used to attract the dull of wit are not to be relied on." — **Huang Po**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
