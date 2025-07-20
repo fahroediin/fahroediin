@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Words used to attract the dull of wit are not to be relied on." — **Huang Po**
+> "You're on earth. There's no cure for that." — **Samuel Beckett**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
