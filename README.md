@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "You're on earth. There's no cure for that." — **Samuel Beckett**
+> "Everything eaten is killed. Every meal is a sacrifice." — **Adi Da Samraj**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
