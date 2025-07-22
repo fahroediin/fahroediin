@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Everything eaten is killed. Every meal is a sacrifice." — **Adi Da Samraj**
+> "Your work is to discover your work and then, with all your heart, to give yourself to it." — **Buddha**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
