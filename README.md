@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Your work is to discover your work and then, with all your heart, to give yourself to it." — **Buddha**
+> "Originality is the fine art of remembering what you hear but forgetting where you heard it. " — **Laurence J. Peter**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
