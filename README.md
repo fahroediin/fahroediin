@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Originality is the fine art of remembering what you hear but forgetting where you heard it. " — **Laurence J. Peter**
+> "When you're curious, you find lots of interesting things to do." — **Walt Disney**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
