@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "When you're curious, you find lots of interesting things to do." — **Walt Disney**
+> "To every action there is always opposed an equal reaction." — **Isaac Newton**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
