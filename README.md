@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Confidence comes from crossing thresholds." — **Kamal Ravikant**
+> "What you do today can improve all your tomorrows." — **Ralph Marston**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
