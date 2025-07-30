@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "What you do today can improve all your tomorrows." — **Ralph Marston**
+> "Of all men's miseries the bitterest is this: to know so much and to have control over nothing. " — **Herodotus**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
