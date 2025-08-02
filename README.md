@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Incredible change happens in your life when you decide to take control of what you do have power over instead of craving control over what you don't." — **Steve Maraboli**
+> "Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly." — **Marcus Aurelius**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
