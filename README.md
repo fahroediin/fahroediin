@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Be yourself; everyone else is already taken." — **Oscar Wilde**
+> "Fishing is much more than fish." — **Herbert Hoover**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
