@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Fishing is much more than fish." — **Herbert Hoover**
+> "Don't criticize what you can't understand. " — **Bob Dylan**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
