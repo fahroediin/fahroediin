@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Don't criticize what you can't understand. " — **Bob Dylan**
+> "Management is doing things right; leadership is doing the right things." — **Peter Drucker**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
