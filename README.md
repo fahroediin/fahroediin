@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Management is doing things right; leadership is doing the right things." — **Peter Drucker**
+> "The chief cause of failure and unhappiness is trading what you want most for what you want right now." — **Zig Ziglar**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
