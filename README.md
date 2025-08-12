@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The chief cause of failure and unhappiness is trading what you want most for what you want right now." — **Zig Ziglar**
+> "We must learn to live together as brothers or perish together as fools." — **Martin Luther King, Jr.**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
