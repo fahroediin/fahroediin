@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "We must learn to live together as brothers or perish together as fools." — **Martin Luther King, Jr.**
+> "It is not what we get. But who we become, what we contribute... that gives meaning to our lives." — **Tony Robbins**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
