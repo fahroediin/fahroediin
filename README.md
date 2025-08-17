@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Some people feel the rain. Others just get wet. " — **Bob Dylan**
+> "Your conscience is the measure of the honesty of your selfishness. Listen to it carefully." — **Richard Bach**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
