@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Your conscience is the measure of the honesty of your selfishness. Listen to it carefully." — **Richard Bach**
+> "Happiness is an effect of doing what you love, not an end goal to be achieved." — **Celestine Chua**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
