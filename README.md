@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Happiness is an effect of doing what you love, not an end goal to be achieved." — **Celestine Chua**
+> "It is not uncommon for people to spend their whole life waiting to start living." — **Eckhart Tolle**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
