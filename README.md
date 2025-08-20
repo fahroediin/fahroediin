@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "It is not uncommon for people to spend their whole life waiting to start living." — **Eckhart Tolle**
+> "You are the average of the five people you spend most time with." — **Jim Rohn**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
