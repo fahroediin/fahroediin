@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "You can avoid reality, but you cannot avoid the consequences of avoiding reality." — **Ayn Rand**
+> "A man who cannot tolerate small misfortunes can never accomplish great things." — **Chinese Proverb**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
