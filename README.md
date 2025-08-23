@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "A man who cannot tolerate small misfortunes can never accomplish great things." — **Chinese Proverb**
+> "Do the hard jobs first. The easy jobs will take care of themselves." — **Dale Carnegie**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
