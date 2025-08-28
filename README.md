@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Keep your face to the sunshine and you cannot see the shadows." — **Helen Keller**
+> "Behind every beautiful thing, there's some kind of pain." — **Bob Dylan**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
