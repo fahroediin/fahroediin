@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Behind every beautiful thing, there's some kind of pain." — **Bob Dylan**
+> "Talent is luck. The important thing in life is courage." — **Woody Allen**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
