@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence. " — **George Washington**
+> "There is always risk, so learn to manage risk instead of avoiding it." — **Robert Kiyosaki**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
