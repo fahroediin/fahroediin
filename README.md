@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "First comes the shy wish. Then you must have the heart to have the dream. Then, you work, and work.  " — **Estee Lauder**
+> "The trouble with the rat race is that even if you win, you're still a rat." — **Lily Tomlin**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
