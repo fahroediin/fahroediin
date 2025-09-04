@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "To know even one life has breathed easier because you have lived. This is to have succeeded." — **Ralph Waldo Emerson**
+> "Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort." — **Steve Harvey**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
