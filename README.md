@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "We must not cease from exploration. And the end of all our exploring will be to arrive where we began and to know the place for the first time." — **T.S. Eliot**
+> "Don't blame others. it won't make you a better person." — **Lolly Daskal**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
