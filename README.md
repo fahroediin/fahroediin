@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Don't blame others. it won't make you a better person." — **Lolly Daskal**
+> "A fall into a ditch makes you wiser." — **Chinese Proverb**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
