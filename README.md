@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "A fall into a ditch makes you wiser." — **Chinese Proverb**
+> "One small positive thought can change your whole day." — **Zig Ziglar**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
