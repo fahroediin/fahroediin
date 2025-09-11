@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "One small positive thought can change your whole day." — **Zig Ziglar**
+> "A gentleman accepts the responsibility of his actions and bears the burden of their consequences." — **William Faulkner**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
