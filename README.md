@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "A gentleman accepts the responsibility of his actions and bears the burden of their consequences." — **William Faulkner**
+> "Don't try to steer the river." — **Deepak Chopra**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
