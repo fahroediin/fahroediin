@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Don't try to steer the river." — **Deepak Chopra**
+> "No problem can be solved from the same level of consciousness that created it." — **Albert Einstein**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
