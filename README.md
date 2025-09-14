@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "No problem can be solved from the same level of consciousness that created it." — **Albert Einstein**
+> "It is not fair to ask of others what you are not willing to do yourself." — **Eleanor Roosevelt**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
