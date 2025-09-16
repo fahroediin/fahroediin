@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Passion is energy. Feel the power that comes from focusing on what excites you. " — **Oprah Winfrey**
+> "A strong man overcomes an obstacle, a wise man goes the whole way." — **Zen Proverb**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
