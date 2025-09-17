@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "A strong man overcomes an obstacle, a wise man goes the whole way." — **Zen Proverb**
+> "I dream my painting and I paint my dream." — **Vincent van Gogh**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
