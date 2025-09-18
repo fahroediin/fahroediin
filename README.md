@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "I dream my painting and I paint my dream." — **Vincent van Gogh**
+> "Success is getting what you want... Happiness is wanting what you get." — **Dale Carnegie**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
