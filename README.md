@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Success is getting what you want... Happiness is wanting what you get." — **Dale Carnegie**
+> "If you are ever the smartest person in the room, you are in the wrong room." — **C. Sean McGee**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
