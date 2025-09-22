@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Never whine, never complain, never try to justify yourself." — **Robert Greene**
+> "There is no greatness where there is not simplicity, goodness, and truth." — **Leo Tolstoy**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
