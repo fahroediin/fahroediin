@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "There is no greatness where there is not simplicity, goodness, and truth." — **Leo Tolstoy**
+> "Human beings can alter their lives by altering their attitudes of mind." — **William James**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
