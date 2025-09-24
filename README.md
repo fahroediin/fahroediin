@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Human beings can alter their lives by altering their attitudes of mind." — **William James**
+> "You must be willing to do what others won't do, to have what others won't have." — **Les Brown**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
