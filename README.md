@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "You must be willing to do what others won't do, to have what others won't have." — **Les Brown**
+> "When you move beyond your fear, you feel free." — **Spencer Johnson**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
