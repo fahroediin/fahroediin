@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge." — **Robert Greene**
+> "No man is free who is not master of himself." — **Epictetus**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
