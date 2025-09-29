@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "No man is free who is not master of himself." — **Epictetus**
+> "Not everything that weighs you down is yours to carry." — **Unknown**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
