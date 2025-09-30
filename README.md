@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Not everything that weighs you down is yours to carry." — **Unknown**
+> "Judge a man by his questions rather than his answers." — **Voltaire**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
