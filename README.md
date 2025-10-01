@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Judge a man by his questions rather than his answers." — **Voltaire**
+> "Don't let the past steal your present." — **Cherralea Morgen**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
