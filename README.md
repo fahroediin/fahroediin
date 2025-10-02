@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Don't let the past steal your present." — **Cherralea Morgen**
+> "He that can have patience can have what he will." — **Benjamin Franklin**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
