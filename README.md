@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The truth is not for all men, but for those who seek it." — **Ayn Rand**
+> "I never dwell on what happened. You can't change it. Move forward." — **Joan Rivers**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
