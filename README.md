@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "I never dwell on what happened. You can't change it. Move forward." — **Joan Rivers**
+> "Listen to the secret sound, the real sound, which is inside you." — **Kabir**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
