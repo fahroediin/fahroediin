@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Listen to the secret sound, the real sound, which is inside you." — **Kabir**
+> "The eyes of others our prisons; their thoughts our cages." — **Virginia Woolf**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
