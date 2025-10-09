@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The eyes of others our prisons; their thoughts our cages." — **Virginia Woolf**
+> "There is nothing more frightful than ignorance in action." — **Johann Wolfgang von Goethe**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
