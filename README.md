@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The more reasons you have for achieving your goal, the more determined you will become." — **Brian Tracy**
+> "To live fully is to be always in no-man's-land, to experience each moment as completely new and fresh." — **Pema Chodron**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
