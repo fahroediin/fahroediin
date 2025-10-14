@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time." — **Jon Kabat-Zinn**
+> "When it is dark enough, you can see the stars." — **Ralph Waldo Emerson**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
