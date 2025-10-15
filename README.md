@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "When it is dark enough, you can see the stars." — **Ralph Waldo Emerson**
+> "Life is trying things to see if they work." — **Ray Bradbury**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
