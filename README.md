@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Life is trying things to see if they work." — **Ray Bradbury**
+> "Desire is suffering." — **Naval Ravikant**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
