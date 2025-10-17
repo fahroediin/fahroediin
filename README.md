@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Desire is suffering." — **Naval Ravikant**
+> "Excellence is not a skill. It is an attitude. " — **Ralph Marston**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
