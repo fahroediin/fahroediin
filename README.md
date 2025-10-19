@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Forgive those who have hurt you." — **Les Brown**
+> "Whatever you do,strive to do it so well that no man living and no man dead and no man yet to be born could do it any better." — **Benjamin Mays**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
