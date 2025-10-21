@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "If you're waiting until you feel talented enough to make it, you'll never make it." — **Criss Jami**
+> "There is no absolute success in the world, only constant progress." — **Jonathan Swift**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
