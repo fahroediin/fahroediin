@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "There is no absolute success in the world, only constant progress." — **Jonathan Swift**
+> "Where there is no struggle, there is no strength. " — **Oprah Winfrey**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
