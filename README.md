@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Where there is no struggle, there is no strength. " — **Oprah Winfrey**
+> "Life is not always a matter of holding good cards, but sometimes, playing a poor hand well. " — **Jack London**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
