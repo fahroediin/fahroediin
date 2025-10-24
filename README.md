@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Life is not always a matter of holding good cards, but sometimes, playing a poor hand well. " — **Jack London**
+> "Greatest success comes just one step beyond the point at which defeat overtakes you." — **Unknown**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
