@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Greatest success comes just one step beyond the point at which defeat overtakes you." — **Unknown**
+> "Love is the absence of judgment." — **Dalai Lama**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
