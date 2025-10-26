@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Love is the absence of judgment." — **Dalai Lama**
+> "Integrity is the ability to stand by an idea." — **Ayn Rand**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
