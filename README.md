@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Integrity is the ability to stand by an idea." — **Ayn Rand**
+> "One beam, no matter how big, cannot support an entire house on its own." — **Chinese Proverb**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
