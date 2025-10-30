@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "We are always complaining that our days are few, and acting as though there would be no end of them.  " — **Seneca**
+> "Whenever people agree with me I always feel I must be wrong." — **Oscar Wilde**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
