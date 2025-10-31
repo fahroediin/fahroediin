@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Whenever people agree with me I always feel I must be wrong." — **Oscar Wilde**
+> "Believe in your infinite potential. Your only limitations are those you set upon yourself." — **Roy T. Bennett**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
