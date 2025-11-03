@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "A lie can travel half way around the world while the truth is putting on its shoes." — **Mark Twain**
+> "The purpose of life is the life of purpose." — **Robin Sharma**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
