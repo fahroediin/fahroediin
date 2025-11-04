@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The purpose of life is the life of purpose." — **Robin Sharma**
+> "Never let the fear of striking out keep you from playing the game." — **Babe Ruth**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
