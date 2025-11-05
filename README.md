@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Never let the fear of striking out keep you from playing the game." — **Babe Ruth**
+> "Anyone who has ever made anything of importance was disciplined." — **Andrew Hendrixson**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
