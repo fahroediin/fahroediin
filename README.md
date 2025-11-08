@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "He who knows best knows how little he knows." — **Thomas Jefferson**
+> "It is indeed a radical act of love just to sit down and be quiet for a time by yourself." — **Jon Kabat-Zinn**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
