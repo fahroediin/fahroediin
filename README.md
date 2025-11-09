@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "It is indeed a radical act of love just to sit down and be quiet for a time by yourself." — **Jon Kabat-Zinn**
+> "It is what we make out of what we have, not what we are given, that separates one person from another." — **Nelson Mandela**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
