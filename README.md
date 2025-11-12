@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "A hopeless man is a very desperate and dangerous man, almost a dead man." — **Robert F. Kennedy**
+> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution." — **Kahlil Gibran**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
