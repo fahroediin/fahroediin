@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution." — **Kahlil Gibran**
+> "The best answer to anger is silence." — **Marcus Aurelius**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
