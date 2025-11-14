@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The best answer to anger is silence." — **Marcus Aurelius**
+> "No man can get rich himself unless he enriches others." — **Earl Nightingale**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
