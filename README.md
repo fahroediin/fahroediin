@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again." — **Og Mandino**
+> "Dream big. Start small. But most of all, start." — **Simon Sinek**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
