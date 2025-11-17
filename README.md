@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Dream big. Start small. But most of all, start." — **Simon Sinek**
+> "The power to make and break habits and learning how to do that is really important." — **Naval Ravikant**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
