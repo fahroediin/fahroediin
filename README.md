@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "I think it's very important to have a feedback loop, where you're constantly thinking about what you've done and how you could be doing it better." — **Elon Musk**
+> "Passion creates, addiction consumes." — **Gabor Mate**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
