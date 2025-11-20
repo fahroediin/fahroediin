@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Passion creates, addiction consumes." — **Gabor Mate**
+> "The opportunity of defeating the enemy is provided by the enemy himself." — **Sun Tzu**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
