@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The opportunity of defeating the enemy is provided by the enemy himself." — **Sun Tzu**
+> "We suffer more often in imagination than in reality.  " — **Seneca**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
