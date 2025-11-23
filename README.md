@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "It isn't that they can't see the solution. It is that they can't see the problem." — **Gilbert Chesterton**
+> "The greatest weariness comes from work not done." — **Eric Hoffer**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
