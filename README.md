@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The greatest weariness comes from work not done." — **Eric Hoffer**
+> "The Truth is realized in an instant; the Act is practiced step by step." — **Seungsahn**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
