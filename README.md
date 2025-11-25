@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The Truth is realized in an instant; the Act is practiced step by step." — **Seungsahn**
+> "Before anything else, preparation is the key to success." — **Alexander Graham Bell**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
