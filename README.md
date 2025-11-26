@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Before anything else, preparation is the key to success." — **Alexander Graham Bell**
+> "The soul without imagination is what an observatory would be without a telescope." — **Henry Ward Beecher**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
