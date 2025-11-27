@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The soul without imagination is what an observatory would be without a telescope." — **Henry Ward Beecher**
+> "The way out is in." — **Thich Nhat Hanh**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
