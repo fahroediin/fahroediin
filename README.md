@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The way out is in." — **Thich Nhat Hanh**
+> "Best be yourself, imperial, plain, and true." — **Robert Browning**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
