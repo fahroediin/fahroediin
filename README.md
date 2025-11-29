@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Best be yourself, imperial, plain, and true." — **Robert Browning**
+> "It doesn't matter where you are, you are nowhere compared to where you can go." — **Bob Proctor**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
