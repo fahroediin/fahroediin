@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "What's the point in being smart enough to read, if everything you read makes you dumb?" — **C. Sean McGee**
+> "You are not the drop in the ocean, but the ocean in the drop." — **Deepak Chopra**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
