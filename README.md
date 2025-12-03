@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose." — **Steve Jobs**
+> "Believe in one thing too much and you have no room for new ideas.  " — **Ray Bradbury**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
