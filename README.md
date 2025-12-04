@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Believe in one thing too much and you have no room for new ideas.  " — **Ray Bradbury**
+> "Problems remain as problems because people are busy defending them rather than finding solutions." — **Celestine Chua**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
