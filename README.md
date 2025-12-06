@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The foolish reject what they see, not what they think; the wise reject what they think, not what they see." — **Huang Po**
+> "He who can, does." — **George Bernard Shaw**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
