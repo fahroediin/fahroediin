@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "He who can, does." — **George Bernard Shaw**
+> "Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new." — **Brian Tracy**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
