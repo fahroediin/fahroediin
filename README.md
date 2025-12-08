@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new." — **Brian Tracy**
+> "If you do not push the boundaries, you will never know where they are." — **T.S. Eliot**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
