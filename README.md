@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "If you do not push the boundaries, you will never know where they are." — **T.S. Eliot**
+> "Decide whether or not the goal is worth the risks involved. If it is, stop worrying." — **Amelia Earhart**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
