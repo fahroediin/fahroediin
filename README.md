@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "If you haven't the strength to impose your own terms upon life, then you must accept the terms it offers you." — **T.S. Eliot**
+> "The important thing is not to stop questioning. Curiosity has its own reason for existing." — **Albert Einstein**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
