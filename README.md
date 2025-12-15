@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man." — **Elbert Hubbard**
+> "If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace." — **Dogen**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
