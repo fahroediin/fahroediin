@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself." — **Samuel Butler**
+> "Obstacles don't block the path, they are the path." — **Zen Proverb**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
