@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Obstacles don't block the path, they are the path." — **Zen Proverb**
+> "We can see through others only when we can see through ourselves." — **Bruce Lee**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
