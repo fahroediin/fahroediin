@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "We can see through others only when we can see through ourselves." — **Bruce Lee**
+> "Whatever you are, be a good one." — **Abraham Lincoln**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
