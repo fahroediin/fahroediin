@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Whatever you are, be a good one." — **Abraham Lincoln**
+> "Luck is a matter of preparation meeting opportunity." — **Oprah Winfrey**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
