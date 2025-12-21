@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Luck is a matter of preparation meeting opportunity." — **Oprah Winfrey**
+> "You'll get more from being a peacemaker than a warrior." — **Arnold Schwarzenegger**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
