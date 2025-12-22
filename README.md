@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "You'll get more from being a peacemaker than a warrior." — **Arnold Schwarzenegger**
+> "Never spend your money before you have earned it." — **Thomas Jefferson**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
