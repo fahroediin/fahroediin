@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Never spend your money before you have earned it." — **Thomas Jefferson**
+> "Longevity is a fleeting moment that lasts forever." — **Vidal Sassoon**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
