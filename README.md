@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Be brave to stand for what you believe in even if you stand alone." — **Roy T. Bennett**
+> "Muddy water is best cleared by leaving it alone." — **Alan Watts**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
