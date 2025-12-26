@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Muddy water is best cleared by leaving it alone." — **Alan Watts**
+> "Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending." — **Carl Bard**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
