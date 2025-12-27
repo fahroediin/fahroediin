@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending." — **Carl Bard**
+> "Start the day with love, spend the day with love, fill the day with love and end the day with love." — **Sathya Sai Baba**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
