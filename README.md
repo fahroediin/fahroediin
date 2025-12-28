@@ -21,7 +21,7 @@ I'm a passionate **Backend Developer** currently working with **OutSystems**, an
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Start the day with love, spend the day with love, fill the day with love and end the day with love." — **Sathya Sai Baba**
+> "A crisis is an opportunity riding the dangerous wind." — **Chinese Proverb**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
