@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "A crisis is an opportunity riding the dangerous wind." — **Chinese Proverb**
+> "Don't let anyone define you. You define yourself." — **Billie Jean King**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
