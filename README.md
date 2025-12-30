@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Don't let anyone define you. You define yourself." — **Billie Jean King**
+> "A Quitter never wins - and - a Winner never quits." — **Napoleon Hill**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
