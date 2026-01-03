@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "He who cheats the earth will be cheated by the earth." — **Chinese Proverb**
+> "Far more crucial than what we know or do not know is what we do not want to know." — **Eric Hoffer**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
