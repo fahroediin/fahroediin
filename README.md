@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Far more crucial than what we know or do not know is what we do not want to know." — **Eric Hoffer**
+> "Age is a very high price to pay for maturity." — **William James**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
