@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "When the world pushes you to your knees, you're in the perfect position to pray." — **Rumi**
+> "Most people spend more time and energy going around problems than in trying to solve them. " — **Henry Ford**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
