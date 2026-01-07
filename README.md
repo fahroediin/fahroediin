@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Most people spend more time and energy going around problems than in trying to solve them. " — **Henry Ford**
+> "People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love." — **Dr. Seuss**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
