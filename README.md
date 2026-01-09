@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "To be prepared is half the victory. " — **Miguel de Cervantes**
+> "The most creative act you will ever undertake is the act of creating yourself." — **Deepak Chopra**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
