@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The most creative act you will ever undertake is the act of creating yourself." — **Deepak Chopra**
+> "A man who dares to waste one hour of time has not discovered the value of life." — **Charles Darwin**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
