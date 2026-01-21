@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Outstanding people have one thing in common: an absolute sense of mission.  " — **Zig Ziglar**
+> "The friendship that can cease has never been real. " — **St. Jerome**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
