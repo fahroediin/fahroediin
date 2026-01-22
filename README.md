@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The friendship that can cease has never been real. " — **St. Jerome**
+> "You need to be doing fewer things for more effect instead of doing more things with side effects." — **Gary Keller**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
