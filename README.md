@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible." — **Josh Waitzkin**
+> "How you think is as important as as what you think." — **Unknown**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
