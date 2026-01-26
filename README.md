@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "How you think is as important as as what you think." — **Unknown**
+> "You are free, and that is why you are lost. " — **Franz Kafka**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
