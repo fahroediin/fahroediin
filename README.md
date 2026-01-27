@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "You are free, and that is why you are lost. " — **Franz Kafka**
+> "If someone betrays you once, it's their fault; if they betray you twice, it's your fault." — **Eleanor Roosevelt**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
