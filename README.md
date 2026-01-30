@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Silence is a source of great strength." — **Lao Tzu**
+> "Your only obligation in any lifetime is to be true to yourself." — **Richard Bach**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
