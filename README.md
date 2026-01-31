@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Your only obligation in any lifetime is to be true to yourself." — **Richard Bach**
+> "Know yourself and you will win all battles." — **Sun Tzu**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
