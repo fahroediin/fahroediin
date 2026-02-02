@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "What you get by achieving your goals is not as important as what you become by achieving your goals." — **Henry David Thoreau**
+> "No one can hurt you without your consent." — **Eleanor Roosevelt**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
