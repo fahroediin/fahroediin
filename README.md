@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "No one ever said life was fair. Just Eventful." — **Carol Burnett**
+> "The more knowledge you have, the more you're free to rely on your instincts." — **Arnold Schwarzenegger**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
