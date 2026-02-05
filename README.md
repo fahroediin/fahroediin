@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The more knowledge you have, the more you're free to rely on your instincts." — **Arnold Schwarzenegger**
+> "There is a wisdom of the head, and there is a wisdom of the heart." — **Charles Dickens**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
