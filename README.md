@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "There is a wisdom of the head, and there is a wisdom of the heart." — **Charles Dickens**
+> "Be happy now, without reason - or you never will be at all." — **Dan Millman**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
