@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Be happy now, without reason - or you never will be at all." — **Dan Millman**
+> "Create each day anew." — **Morihei Ueshiba**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
