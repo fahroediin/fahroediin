@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward." — **Colin Powell**
+> "You are not one person, but three: The one you think you are; The one others think you are; The one you really are." — **Sathya Sai Baba**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
