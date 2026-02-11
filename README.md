@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "All great truths begin as blasphemies." — **George Bernard Shaw**
+> "Man's character is his fate." — **Heraclitus**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
