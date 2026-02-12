@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Man's character is his fate." — **Heraclitus**
+> "We are all self-made, but only the successful will admit it." — **Earl Nightingale**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
