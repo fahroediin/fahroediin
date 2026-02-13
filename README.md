@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "We are all self-made, but only the successful will admit it." — **Earl Nightingale**
+> "All leaders are readers." — **Jim Rohn**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
