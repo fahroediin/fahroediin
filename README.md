@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "All leaders are readers." — **Jim Rohn**
+> "Laws are like cobwebs, which may catch small flies, but let wasps and hornets break through." — **Jonathan Swift**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
