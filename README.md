@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Laws are like cobwebs, which may catch small flies, but let wasps and hornets break through." — **Jonathan Swift**
+> "If a thing is worth doing, it is worth doing badly." — **Gilbert Chesterton**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
