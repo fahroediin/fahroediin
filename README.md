@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "If a thing is worth doing, it is worth doing badly." — **Gilbert Chesterton**
+> "We are all born ignorant, but one must work hard to remain stupid." — **Benjamin Franklin**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
