@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Remember that sometimes not getting what you want is a wonderful stroke of luck." — **Dalai Lama**
+> "Rudeness is the weak man's imitation of strength." — **Eric Hoffer**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
