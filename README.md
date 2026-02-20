@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old. " — **Franz Kafka**
+> "The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach." — **Benjamin Mays**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
