@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach." — **Benjamin Mays**
+> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means." — **Ronald Reagan**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
