@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Peace is not absence of conflict, it is the ability to handle conflict by peaceful means." — **Ronald Reagan**
+> "To a mind that is still, the entire universe surrenders." — **Zhuangzi**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
