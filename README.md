@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "To a mind that is still, the entire universe surrenders." — **Zhuangzi**
+> "Children are our greatest natural resource." — **Herbert Hoover**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
