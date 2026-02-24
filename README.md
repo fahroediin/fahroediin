@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Children are our greatest natural resource." — **Herbert Hoover**
+> "By failing to prepare, you are preparing to fail." — **Benjamin Franklin**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
