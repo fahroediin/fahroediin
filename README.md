@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "By failing to prepare, you are preparing to fail." — **Benjamin Franklin**
+> "Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win." — **Stephen King**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
