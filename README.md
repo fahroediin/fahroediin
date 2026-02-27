@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Some changes look negative on the surface but you will soon realize that space is being created in your life for something new to emerge." — **Eckhart Tolle**
+> "A comfort zone is a beautiful place, but nothing ever grows there." — **Unknown**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
