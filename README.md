@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "A comfort zone is a beautiful place, but nothing ever grows there." — **Unknown**
+> "It's your life-but only if you make it so." — **Eleanor Roosevelt**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
