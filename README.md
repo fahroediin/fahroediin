@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "It's your life-but only if you make it so." — **Eleanor Roosevelt**
+> "The man who removes a mountain begins by carrying away small stones." — **William Faulkner**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
