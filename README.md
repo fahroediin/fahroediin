@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The man who removes a mountain begins by carrying away small stones." — **William Faulkner**
+> "The pain of parting is nothing to the joy of meeting again." — **Charles Dickens**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
