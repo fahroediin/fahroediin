@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "It doesn't matter where you are coming from. All that matters is where you are going. " — **Brian Tracy**
+> "You don't need a weatherman to know which way the wind blows." — **Bob Dylan**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
