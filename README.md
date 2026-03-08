@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The world doesn't always give you want, but it often gives you what you need." — **Naval Ravikant**
+> "Everything flows, nothing stands still." — **Heraclitus**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
