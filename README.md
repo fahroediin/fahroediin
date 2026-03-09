@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Everything flows, nothing stands still." — **Heraclitus**
+> "You'll see it when you believe it. " — **Wayne Dyer**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
