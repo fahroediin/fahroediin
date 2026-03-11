@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "We can spend our whole lives escaping from the monsters of our minds." — **Pema Chodron**
+> "We cannot change anything unless we accept it." — **Carl Jung**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
