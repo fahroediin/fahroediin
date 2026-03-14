@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The best fighter is never angry." — **Lao Tzu**
+> "Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations." — **Alfred Adler**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
