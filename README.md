@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations." — **Alfred Adler**
+> "Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you." — **Peter Drucker**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
