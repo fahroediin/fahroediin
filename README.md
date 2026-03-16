@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you." — **Peter Drucker**
+> "We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies." — **Emily Dickinson**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
