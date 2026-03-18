@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Your happiness is what truly matters most. Do what you have to do in order to be happy." — **Brian Tracy**
+> "Giving back involves a certain amount of giving up." — **Colin Powell**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
