@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Be fascinated instead of frustrated." — **Jim Rohn**
+> "Simple words, repeated daily, can change your life." — **Maxime Lagace**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
