@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Simple words, repeated daily, can change your life." — **Maxime Lagace**
+> "Life is what you make it. Always has been, always will be." — **Eleanor Roosevelt**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
