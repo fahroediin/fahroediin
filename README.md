@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Life is what you make it. Always has been, always will be." — **Eleanor Roosevelt**
+> "Excellence is not an exception, it is a prevailing attitude." — **Colin Powell**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
