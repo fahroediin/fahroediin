@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Excellence is not an exception, it is a prevailing attitude." — **Colin Powell**
+> "You are now, and you do become, what you think about." — **Earl Nightingale**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
