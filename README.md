@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "You are now, and you do become, what you think about." — **Earl Nightingale**
+> "It's easier to lose than to win.  " — **Wayne Gretzky**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
