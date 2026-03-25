@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "It's easier to lose than to win.  " — **Wayne Gretzky**
+> "Everything you've ever wanted is on the other side of fear." — **Brian Tracy**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
