@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Everything you've ever wanted is on the other side of fear." — **Brian Tracy**
+> "Write to help yourself, publish to help others." — **Jack Butcher**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
