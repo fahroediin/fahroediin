@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Write to help yourself, publish to help others." — **Jack Butcher**
+> "Confidence is what you have before you understand the problem." — **Woody Allen**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
