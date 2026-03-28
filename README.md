@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Confidence is what you have before you understand the problem." — **Woody Allen**
+> "Intense love does not measure, it just gives." — **Mother Teresa**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
