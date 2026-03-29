@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Intense love does not measure, it just gives." — **Mother Teresa**
+> "Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday." — **Brian Tracy**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
