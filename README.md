@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday." — **Brian Tracy**
+> "Success is about creating value." — **Candice Carpenter**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
