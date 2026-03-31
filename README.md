@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Success is about creating value." — **Candice Carpenter**
+> "I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in." — **Virginia Woolf**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
