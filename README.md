@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "It's not the men in your life that matters, it's the life in your men." — **Mae West**
+> "If I can laugh, I can live." — **Christopher Reeve**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
