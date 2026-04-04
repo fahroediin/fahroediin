@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Ideas do not reach perfection in a day, no matter how much study is put upon them." — **Alexander Graham Bell**
+> "Everybody needs a passion. That's what keeps life interesting." — **Betty White**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
