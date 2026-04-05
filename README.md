@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Everybody needs a passion. That's what keeps life interesting." — **Betty White**
+> "If you are going to achieve excellence in big things, you develop the habit in little matters." — **Colin Powell**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
