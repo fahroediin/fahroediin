@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Don't wish it were easier, wish you were better." — **Jim Rohn**
+> "Your gift is something that you can do innately better than anything else." — **Steve Harvey**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
