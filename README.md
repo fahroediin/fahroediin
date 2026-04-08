@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Your gift is something that you can do innately better than anything else." — **Steve Harvey**
+> "It's OK to have your eggs in one basket as long as you control what happens to that basket." — **Elon Musk**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
