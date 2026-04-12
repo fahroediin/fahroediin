@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "I can live without money, but I cannot live without love." — **Judy Garland**
+> "Enjoy life. There's plenty of time to be dead." — **Hans Christian Andersen**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
