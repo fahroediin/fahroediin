@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Today is plenty; right now is enough. Tomorrow will come in good time. Until it does, live the depth of now." — **Ralph Marston**
+> "Truth is such a rare thing, it is delighted to tell it." — **Emily Dickinson**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
