@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Respect was invented to cover the empty place where love should be." — **Leo Tolstoy**
+> "Without struggle, no progress and no result. Every breaking of habit produces a change in the machine." — **G.I. Gurdjieff**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
