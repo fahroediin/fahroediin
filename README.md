@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Without struggle, no progress and no result. Every breaking of habit produces a change in the machine." — **G.I. Gurdjieff**
+> "Still your waters." — **Josh Waitzkin**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
