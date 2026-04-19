@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Still your waters." — **Josh Waitzkin**
+> "If you go out looking for friends, you're going to find they are very scarce. If you go out to be a friend, you'll find them everywhere." — **Zig Ziglar**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
