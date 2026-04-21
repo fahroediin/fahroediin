@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Freedom lies in being bold." — **Robert Frost**
+> "Your heart is the size of an ocean. Go find yourself in its hidden depths." — **Rumi**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
