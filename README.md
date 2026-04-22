@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Your heart is the size of an ocean. Go find yourself in its hidden depths." — **Rumi**
+> "When you judge another, you do not define them, you define yourself" — **Wayne Dyer**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
