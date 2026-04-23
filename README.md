@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "When you judge another, you do not define them, you define yourself" — **Wayne Dyer**
+> "The only reason to be alive is to enjoy it." — **Rita Mae Brown**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
