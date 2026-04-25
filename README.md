@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "You can't get to a place that you don't believe exists." — **Unknown**
+> "Even if you persuade me, you won't persuade me." — **Aristophanes**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
