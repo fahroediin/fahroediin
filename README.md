@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Even if you persuade me, you won't persuade me." — **Aristophanes**
+> "In the middle of difficulty lies opportunity." — **Albert Einstein**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
