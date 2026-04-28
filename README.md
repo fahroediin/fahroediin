@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "I'm an optimist by choice not by stupidity." — **Yanni**
+> "Self-knowledge is the beginning of self-correction." — **Norman Vincent Peale**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
