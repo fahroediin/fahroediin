@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Over time, loneliness gets inside you and doesn't go away." — **Carlos Ruiz Zafon**
+> "Those who cannot change their minds cannot change anything." — **George Bernard Shaw**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
