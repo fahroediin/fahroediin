@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Those who cannot change their minds cannot change anything." — **George Bernard Shaw**
+> "Duty makes us do things well, but love makes us do them beautifully.  " — **Zig Ziglar**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
