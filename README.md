@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Duty makes us do things well, but love makes us do them beautifully.  " — **Zig Ziglar**
+> "Confidence is contagious. So is lack of confidence." — **Vince Lombardi**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
