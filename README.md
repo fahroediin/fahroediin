@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Confidence is contagious. So is lack of confidence." — **Vince Lombardi**
+> "Your best life will not be found in comfort. It will be found in fighting for what you believe in." — **Maxime Lagace**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
