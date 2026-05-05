@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat." — **Sun Tzu**
+> "Throw your heart over the bar and your body will follow." — **Norman Vincent Peale**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
