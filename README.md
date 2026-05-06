@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "Throw your heart over the bar and your body will follow." — **Norman Vincent Peale**
+> "If what you're doing is not your passion, you have nothing to lose." — **Celestine Chua**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
