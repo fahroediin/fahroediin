@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "If what you're doing is not your passion, you have nothing to lose." — **Celestine Chua**
+> "It's the possibility of having a dream come true that makes life interesting." — **Paulo Coelho**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
