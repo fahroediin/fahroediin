@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "The majority of what you want will come from the minority of what you do." — **Gary Keller**
+> "We don't stop playing because we grow old; we grow old because we stop playing." — **George Bernard Shaw**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
