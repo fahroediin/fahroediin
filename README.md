@@ -21,7 +21,7 @@ I'm boy with full of hope 📱
 ## ✨ Daily Motivation
 
 <!-- QUOTE-START -->
-> "We don't stop playing because we grow old; we grow old because we stop playing." — **George Bernard Shaw**
+> "Being ignorant is not so much a shame, as being unwilling to learn." — **Benjamin Franklin**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
