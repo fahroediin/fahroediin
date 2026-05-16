@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Learn from the rejection and turn it into an opportunity!" — **Mary Engelbreit**
+> "Why live an ordinary life, when you can live an extraordinary one." — **Tony Robbins**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
