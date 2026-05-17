@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Why live an ordinary life, when you can live an extraordinary one." — **Tony Robbins**
+> "Do not bite at the bait of pleasure, till you know there is no hook beneath it." — **Thomas Jefferson**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
