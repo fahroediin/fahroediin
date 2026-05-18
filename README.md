@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Do not bite at the bait of pleasure, till you know there is no hook beneath it." — **Thomas Jefferson**
+> "Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt." — **Honore de Balzac**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
