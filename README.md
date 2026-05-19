@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt." — **Honore de Balzac**
+> "A friend to all is a friend to none." — **Aristotle**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
