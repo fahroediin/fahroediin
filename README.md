@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "A friend to all is a friend to none." — **Aristotle**
+> "Mistakes are always forgivable, if one has the courage to admit them. " — **Bruce Lee**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
