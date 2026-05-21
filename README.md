@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Mistakes are always forgivable, if one has the courage to admit them. " — **Bruce Lee**
+> "Luck is what happens when preparation meets opportunity.  " — **Seneca**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
