@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Thinking is the hardest work there is. That is why so few people engage in it." — **Robert Kiyosaki**
+> "Not all those who wander are lost." — **J.R.R. Tolkien**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
