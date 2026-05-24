@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Not all those who wander are lost." — **J.R.R. Tolkien**
+> "Presents are made for the pleasure of who gives them, not the merits of who receives them." — **Carlos Ruiz Zafon**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
