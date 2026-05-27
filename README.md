@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Learn only how to avoid seeking for and attaching yourselves to anything." — **Huang Po**
+> "Being wrong opens us up to the possibility of change." — **Mark Manson**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
