@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Being wrong opens us up to the possibility of change." — **Mark Manson**
+> "You just can't beat the person who never gives up." — **Babe Ruth**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
