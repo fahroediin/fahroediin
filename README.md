@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "You just can't beat the person who never gives up." — **Babe Ruth**
+> "Do something to move yourself toward your major goal every day." — **Brian Tracy**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
