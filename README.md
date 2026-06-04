@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "You are always your own best guru, your own best teacher, the answers are always inside you." — **Sathya Sai Baba**
+> "Expect the best of yourself, and then do what is necessary to make it a reality." — **Ralph Marston**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
