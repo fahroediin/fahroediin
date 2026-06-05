@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Expect the best of yourself, and then do what is necessary to make it a reality." — **Ralph Marston**
+> "One of the most difficult things is not to change society - but to change yourself." — **Nelson Mandela**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
