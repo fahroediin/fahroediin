@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "I like the dreams of the future better than the history of the past." — **Thomas Jefferson**
+> "Given the choice between the experience of pain and nothing, I would choose pain." — **William Faulkner**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
