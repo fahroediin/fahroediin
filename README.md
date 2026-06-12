@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Short cuts make long delays." — **J.R.R. Tolkien**
+> "The future depends on what you do today." — **Mahatma Gandhi**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
