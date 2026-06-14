@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "You can't build a reputation on what you are going to do." — **Henry Ford**
+> "Anger begins with folly, and ends with repentance." — **Beverly Sills**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
