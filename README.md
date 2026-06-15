@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Anger begins with folly, and ends with repentance." — **Beverly Sills**
+> "Your dream has to be bigger than your fear." — **Steve Harvey**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
