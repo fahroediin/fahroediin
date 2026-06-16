@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Your dream has to be bigger than your fear." — **Steve Harvey**
+> "The road to success is always under construction.." — **Lily Tomlin**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
