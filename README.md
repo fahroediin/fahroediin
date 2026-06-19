@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "But better die than live mechanically a life that is a repetition of repetitions." — **D. H. Lawrence**
+> "All we have to decide is what to do with the time that is given to us." — **J.R.R. Tolkien**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
