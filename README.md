@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "All we have to decide is what to do with the time that is given to us." — **J.R.R. Tolkien**
+> "Let us rather run the risk of wearing out than rusting out." — **Theodore Roosevelt**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
