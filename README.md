@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Let us rather run the risk of wearing out than rusting out." — **Theodore Roosevelt**
+> "Only when you can be extremely pliable and soft can you be extremely hard and strong." — **Zen Proverb**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
