@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Argue for your limitations and sure enough, they're yours." — **Richard Bach**
+> "You may be one person in this world, but to one person you may mean the world." — **Unknown**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
