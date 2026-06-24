@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "You may be one person in this world, but to one person you may mean the world." — **Unknown**
+> "You're on earth. There's no cure for that." — **Samuel Beckett**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
