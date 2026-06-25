@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "You're on earth. There's no cure for that." — **Samuel Beckett**
+> "The best fighter is never angry." — **Lao Tzu**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
