@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "The best fighter is never angry." — **Lao Tzu**
+> "It is dangerous to be right in matters on which the established authorities are wrong." — **Voltaire**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
