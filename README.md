@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Truth is the offspring of silence and meditation." — **Isaac Newton**
+> "All leaders are readers." — **Jim Rohn**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
