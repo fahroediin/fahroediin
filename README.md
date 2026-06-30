@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "All leaders are readers." — **Jim Rohn**
+> "To create more positive results in your life, replace 'if only' with 'next time'." — **Celestine Chua**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
