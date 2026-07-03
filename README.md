@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "No one ever said life was fair. Just Eventful." — **Carol Burnett**
+> "Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories." — **Ray Bradbury**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
