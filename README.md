@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Patience is bitter, but its fruit is sweet." — **Aristotle**
+> "One of the advantages of being disorganized is that one is always having surprising discoveries." — **A.A. Milne**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
