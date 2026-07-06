@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "One of the advantages of being disorganized is that one is always having surprising discoveries." — **A.A. Milne**
+> "Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives." — **Betty White**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
