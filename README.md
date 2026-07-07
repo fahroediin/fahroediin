@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives." — **Betty White**
+> "It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy." — **Sun Tzu**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
