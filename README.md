@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "When you've got nothing, you've got nothing to lose." — **Bob Dylan**
+> "When something comes from within, when it is a part of you, you have no choice but to live it, to express it." — **Kamal Ravikant**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
