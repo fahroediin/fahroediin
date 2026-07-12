@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "When something comes from within, when it is a part of you, you have no choice but to live it, to express it." — **Kamal Ravikant**
+> "Success is a consequence and must not be a goal." — **Gustave Flaubert**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
