@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Success is a consequence and must not be a goal." — **Gustave Flaubert**
+> "Words, once they are printed, have a life of their own." — **Carol Burnett**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
