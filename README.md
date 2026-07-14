@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Words, once they are printed, have a life of their own." — **Carol Burnett**
+> "Pain doesn't last. And when it's gone, we have something to show for it. Growth." — **Kamal Ravikant**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
