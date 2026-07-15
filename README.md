@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Pain doesn't last. And when it's gone, we have something to show for it. Growth." — **Kamal Ravikant**
+> "There's no next time. It's now or never." — **Celestine Chua**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
