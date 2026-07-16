@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "There's no next time. It's now or never." — **Celestine Chua**
+> "Knowing others is wisdom, knowing yourself is enlightenment." — **Lao Tzu**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
