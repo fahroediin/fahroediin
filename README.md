@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Death and life have their determined appointments; riches and honors depend upon heaven." — **Confucius**
+> "Would you rather live your life according to the approval of others or aligned with your truth and your dreams?" — **Robin Sharma**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
