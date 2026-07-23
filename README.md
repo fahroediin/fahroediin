@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Nothing makes a man broad-minded like adversity." — **Will Rogers**
+> "You have the potential for greatness." — **Steve Harvey**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
