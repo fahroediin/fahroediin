@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "You have the potential for greatness." — **Steve Harvey**
+> "Change is hard at first, messy in the middle and gorgeous at the end." — **Robin Sharma**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
