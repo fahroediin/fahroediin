@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "It is amazing what you can accomplish if you do not care who gets the credit." — **Harry S. Truman**
+> "Let us rather run the risk of wearing out than rusting out." — **Theodore Roosevelt**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
