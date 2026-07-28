@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "But better die than live mechanically a life that is a repetition of repetitions." — **D. H. Lawrence**
+> "Be kind, for everyone you meet is fighting a harder battle." — **Plato**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
