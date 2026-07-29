@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Be kind, for everyone you meet is fighting a harder battle." — **Plato**
+> "If you let your head get too big, it'll break your neck." — **Elvis Presley**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
