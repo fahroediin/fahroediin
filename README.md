@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Expect the best of yourself, and then do what is necessary to make it a reality." — **Ralph Marston**
+> "Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present." — **Joan Rivers**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
