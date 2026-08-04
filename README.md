@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "It all depends on what you choose to believe." — **Spencer Johnson**
+> "Love never keeps a man from pursuing his destiny." — **Paulo Coelho**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
