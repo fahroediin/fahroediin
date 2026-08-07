@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "It is the nature of the wise to resist pleasures, but the foolish to be a slave to them." — **Epictetus**
+> "Ability is a poor man's wealth." — **John Wooden**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
