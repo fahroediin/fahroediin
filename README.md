@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Magic is believing in yourself, if you can do that, you can make anything happen." — **Johann Wolfgang von Goethe**
+> "Correct what you can. Learn from what you can't." — **Toni Morrison**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
