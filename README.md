@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Correct what you can. Learn from what you can't." — **Toni Morrison**
+> "Still your waters." — **Josh Waitzkin**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
