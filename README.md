@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Still your waters." — **Josh Waitzkin**
+> "Sadness is but a wall between two gardens." — **Kahlil Gibran**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
