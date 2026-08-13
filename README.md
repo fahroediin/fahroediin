@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Sadness is but a wall between two gardens." — **Kahlil Gibran**
+> "Keep your face to the sunshine and you cannot see the shadows." — **Helen Keller**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
