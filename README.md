@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Keep your face to the sunshine and you cannot see the shadows." — **Helen Keller**
+> "Extraordinary results happen only when you give the best you have to become the best you can be at your most important work." — **Gary Keller**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
