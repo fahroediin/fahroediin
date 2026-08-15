@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Extraordinary results happen only when you give the best you have to become the best you can be at your most important work." — **Gary Keller**
+> "Man suffers only because he takes seriously what the gods made for fun." — **Alan Watts**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
