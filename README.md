@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more." — **Nikola Tesla**
+> "The biggest adventure you can ever take is to live the life of your dreams." — **Oprah Winfrey**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
