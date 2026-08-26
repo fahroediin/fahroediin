@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Mistakes are painful when they happen, but years later a collection of mistakes is what is called experience." — **Denis Waitley**
+> "A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists." — **Charles Dickens**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
