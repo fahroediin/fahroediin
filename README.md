@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Don't put off living to next week, next month, next year or next decade. The only time you're ever living is in this moment." — **Celestine Chua**
+> "Keep your eyes on the goal, and just keep taking the next step towards completing it." — **John Carmack**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
