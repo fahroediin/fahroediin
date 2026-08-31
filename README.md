@@ -2,7 +2,7 @@
 
 ##  Daily Motivation
 <!-- QUOTE-START -->
-> "Keep your eyes on the goal, and just keep taking the next step towards completing it." — **John Carmack**
+> "To a mind that is still, the entire universe surrenders." — **Zhuangzi**
 <!-- QUOTE-END -->
 
 ## 🔗 Connect With Me
