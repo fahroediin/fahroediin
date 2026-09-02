@@ -1,7 +1,7 @@
 <h1 align="center">Imam Fahrudin</h1>
 
 <p align="center">
-  Business Analyst who stays close to the code — bridging business needs and technology, with a keen interest in AI.
+  Business Analyst who used to write the code, now watching the whole picture, still building tools when I get impatient.
 </p>
 
 <p align="center">
@@ -14,10 +14,15 @@
 
 ### About
 
-I translate business processes into working systems and keep my hands in the technical detail. I
-care about clear requirements, systems that run lean, and using AI where it genuinely helps —
-not just where it's fashionable. Most of my building happens in Python, with TypeScript and
-JavaScript for tooling.
+I started out as an OutSystems developer and moved into Business Analysis. These days my work is
+mostly the big-picture stuff, exploring new products, chasing tender opportunities, customer
+profiling, and keeping projects on track with the PM, engineering, UI/UX, and QA folks. But I
+never really put the technical side down, so when a process annoys me enough I just build a tool
+to fix it.
+
+I'm genuinely into AI, but I don't think everything needs it. A lot of problems are perfectly
+fine with plain rule-based logic, bolting AI onto every project is usually overkill. So I reach
+for it when it actually earns its place, and keep things simple when it doesn't.
 
 ---
 
@@ -26,4 +31,3 @@ JavaScript for tooling.
 <!-- QUOTE-START -->
 > "Stop wasting time defending your problems and work on addressing them instead." — **Celestine Chua**
 <!-- QUOTE-END -->
-
