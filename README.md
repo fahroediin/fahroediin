@@ -27,14 +27,3 @@ JavaScript for tooling.
 > "Stop wasting time defending your problems and work on addressing them instead." — **Celestine Chua**
 <!-- QUOTE-END -->
 
----
-### Selected Work
-
-| Project | Description |
-| --- | --- |
-| **[Geenius](https://github.com/fahroediin/Geenius)** | Multi-modal AI agent orchestrator (FastAPI). Intent routing across RAG, image generation, and tabular data analysis. |
-| **[my-ba-flow](https://github.com/fahroediin/my-ba-flow)** | An 8-phase Business Analyst lifecycle as chained Claude Code skills, with full requirement traceability. |
-| **[tester-lab](https://github.com/fahroediin/tester-lab)** | Deterministic, non-LLM test-script generator — a business-rule DSL compiled to Playwright, Cypress, Selenium, and Robot Framework. |
-| **[docusync](https://github.com/fahroediin/docusync)** | WhatsApp-driven document management with Google Drive upload and Elasticsearch full-text search. |
-
----
