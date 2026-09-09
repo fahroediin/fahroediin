@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "High thoughts must have high language." — **Aristophanes**
+> "We are all like the bright moon, we still have our darker side." — **Kahlil Gibran**
 <!-- QUOTE-END -->
