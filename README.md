@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "He who leaves the game wins it." — **Nicolas Chamfort**
+> "Everyday is a second chance." — **Unknown**
 <!-- QUOTE-END -->
