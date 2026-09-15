@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "If you spend too much time thinking about a thing, you'll never get it done." — **Bruce Lee**
+> "Knowing yourself is the beginning of all wisdom." — **Aristotle**
 <!-- QUOTE-END -->
