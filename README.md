@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "When things go wrong, don't go with them." — **Elvis Presley**
+> "Till it has loved, no man or woman can become itself." — **Emily Dickinson**
 <!-- QUOTE-END -->
