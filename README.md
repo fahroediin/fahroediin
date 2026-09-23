@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself." — **Samuel Butler**
+> "When we strive to become better than we are, everything around us becomes better, too." — **Paulo Coelho**
 <!-- QUOTE-END -->
