@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "When we strive to become better than we are, everything around us becomes better, too." — **Paulo Coelho**
+> "You are what you believe in. You become that which you believe you can become." — **Bhagavad Gita**
 <!-- QUOTE-END -->
