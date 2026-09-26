@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Give so much away people insist on paying you." — **Jack Butcher**
+> "If you get up one more time than you fall, you will make it through." — **Chinese Proverb**
 <!-- QUOTE-END -->
