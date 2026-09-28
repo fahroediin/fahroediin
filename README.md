@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Don't let your learning lead to knowledge. Let your learning lead to action." — **Jim Rohn**
+> "One mistake does not have to rule a person's entire life." — **Joyce Meyer**
 <!-- QUOTE-END -->
