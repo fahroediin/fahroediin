@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Silence is a source of great strength." — **Lao Tzu**
+> "If you've made a mistake, it's better just to laugh at it." — **Zen Proverb**
 <!-- QUOTE-END -->
