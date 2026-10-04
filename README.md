@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "We are born from a quiet sleep, and we die to a calm awakening" — **Zhuangzi**
+> "Would you rather learn to deal with the truth now than be forced to do so later on?" — **Celestine Chua**
 <!-- QUOTE-END -->
