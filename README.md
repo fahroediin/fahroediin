@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Engage in those actions and thoughts that nurture the good qualities you want to have." — **Paramahansa Yogananda**
+> "A gentleman is one who puts more into the world than he takes out." — **George Bernard Shaw**
 <!-- QUOTE-END -->
