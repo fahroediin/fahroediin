@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Success is not how high you have climbed, but how you make a positive difference to the world." — **Roy T. Bennett**
+> "The first thing you learn in life is you're a fool. The last thing you learn in life is you're the same fool." — **Ray Bradbury**
 <!-- QUOTE-END -->
