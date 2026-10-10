@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "The first thing you learn in life is you're a fool. The last thing you learn in life is you're the same fool." — **Ray Bradbury**
+> "Ability is a poor man's wealth." — **John Wooden**
 <!-- QUOTE-END -->
