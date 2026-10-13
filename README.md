@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Those who know, do. Those that understand, teach." — **Aristotle**
+> "Life can be the scariest and most beautiful thing simultaneously." — **Maxime Lagace**
 <!-- QUOTE-END -->
