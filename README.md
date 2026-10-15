@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Genius is one percent inspiration and ninety-nine percent perspiration." — **Thomas Edison**
+> "Everything eaten is killed. Every meal is a sacrifice." — **Adi Da Samraj**
 <!-- QUOTE-END -->
