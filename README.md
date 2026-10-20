@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "The secret of change is to focus all your energy not on fighting the old, but on building the new." — **Colin R. Davis**
+> "Success is about doing the right thing, not about doing everything right." — **Gary Keller**
 <!-- QUOTE-END -->
