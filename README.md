@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Success is about doing the right thing, not about doing everything right." — **Gary Keller**
+> "Each day your life grows a day shorter. Make every move count." — **Ming-Dao Deng**
 <!-- QUOTE-END -->
