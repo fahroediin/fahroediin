@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one." — **Mark Twain**
+> "If someone betrays you once, it's their fault; if they betray you twice, it's your fault." — **Eleanor Roosevelt**
 <!-- QUOTE-END -->
