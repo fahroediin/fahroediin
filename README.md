@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world." — **Henry Ward Beecher**
+> "The wiser you get, the less you care to look like a fool." — **Maxime Lagace**
 <!-- QUOTE-END -->
