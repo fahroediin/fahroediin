@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "The wiser you get, the less you care to look like a fool." — **Maxime Lagace**
+> "Loving thoughts and actions are clearly beneficial for our physical and mental health." — **Dalai Lama**
 <!-- QUOTE-END -->
