@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Loving thoughts and actions are clearly beneficial for our physical and mental health." — **Dalai Lama**
+> "Still your waters." — **Josh Waitzkin**
 <!-- QUOTE-END -->
