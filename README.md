@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "The more reasons you have for achieving your goal, the more determined you will become." — **Brian Tracy**
+> "Distant water does not put out a nearby fire." — **Chinese Proverb**
 <!-- QUOTE-END -->
