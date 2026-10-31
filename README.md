@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Distant water does not put out a nearby fire." — **Chinese Proverb**
+> "When you believe in a thing, believe in it all the way, implicitly and unquestionable." — **Walt Disney**
 <!-- QUOTE-END -->
