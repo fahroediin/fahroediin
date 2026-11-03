@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "If you want others to be happy, practice compassion. If you want to be happy, practice compassion." — **Dalai Lama**
+> "When the time is gone, you can never get it back." — **Stephen King**
 <!-- QUOTE-END -->
