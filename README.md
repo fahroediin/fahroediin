@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "People spend too much time doing and not enough time thinking about what they should be doing." — **Naval Ravikant**
+> "Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward." — **Colin Powell**
 <!-- QUOTE-END -->
