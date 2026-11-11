@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward." — **Colin Powell**
+> "A random act of kindness, no matter how small, can make a tremendous impact on someone else's life." — **Roy T. Bennett**
 <!-- QUOTE-END -->
