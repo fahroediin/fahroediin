@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "A random act of kindness, no matter how small, can make a tremendous impact on someone else's life." — **Roy T. Bennett**
+> "In the practice of tolerance, one's enemy is the best teacher." — **Dalai Lama**
 <!-- QUOTE-END -->
