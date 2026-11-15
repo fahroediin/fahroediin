@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "There is nothing more frightful than ignorance in action." — **Johann Wolfgang von Goethe**
+> "The weak can never forgive. Forgiveness is the attribute of the strong." — **Mahatma Gandhi**
 <!-- QUOTE-END -->
