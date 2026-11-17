@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "The weak can never forgive. Forgiveness is the attribute of the strong." — **Mahatma Gandhi**
+> "If you can't argue both sides, you can't argue." — **Jack Butcher**
 <!-- QUOTE-END -->
