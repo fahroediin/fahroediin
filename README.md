@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "If you can't argue both sides, you can't argue." — **Jack Butcher**
+> "Silence is a source of great strength." — **Lao Tzu**
 <!-- QUOTE-END -->
