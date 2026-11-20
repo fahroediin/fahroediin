@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "You are never too old to become younger." — **Mae West**
+> "Never waste a minute of your precious life thinking about people you don't like." — **Celestine Chua**
 <!-- QUOTE-END -->
