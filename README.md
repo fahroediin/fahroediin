@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "Peace is not the absence of conflict, but the ability to cope with it." — **Unknown**
+> "The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way." — **Robert Kiyosaki**
 <!-- QUOTE-END -->
