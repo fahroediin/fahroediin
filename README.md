@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "We have to live life with a sense of urgency so not a minute is wasted." — **Les Brown**
+> "Keep your eyes on the stars, but remember to keep your feet on the ground." — **Theodore Roosevelt**
 <!-- QUOTE-END -->
