@@ -29,5 +29,5 @@ for it when it actually earns its place, and keep things simple when it doesn't.
 ### Daily Motivation
 
 <!-- QUOTE-START -->
-> "It takes half your life before you discover life is a do-it-yourself project." — **Napoleon Hill**
+> "High thoughts must have high language." — **Aristophanes**
 <!-- QUOTE-END -->
